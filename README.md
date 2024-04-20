@@ -1,1 +1,1 @@
-![](https://raw.githubusercontent.com/idshdx/idzer0lis/main/img/getohack2.png)
+![](https://raw.githubusercontent.com/idshdx/idzer0lis/main/img/getohack.png)
